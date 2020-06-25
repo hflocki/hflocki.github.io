@@ -6,3 +6,5 @@ Green Arrow ist gekleidet wie Robin Hood und sieht es als sein Ziel, den Armen z
 * Bogenschuetze
 * Maennlich
 * Sportlich
+
+> Deswegen habe ich Geheimnisse vor dir, weil du dich von Emotionen leiten lässt und genau das wird dir eines Tages das Genick brechen.
